@@ -20,3 +20,6 @@
 
 ## [Monko2k All Blue](https://drive.google.com/file/d/1sbZnZkI4WKBuO91jJN24fzH2JQBmXq5T/view?usp=sharing)
 ![Gameplay](https://i.imgur.com/qTuPA9s.jpg)
+
+## [Azra Ranko Edit](https://www.mediafire.com/file/gzex6w4ca0yr4u6/-_Ranko_edit.osk/file)
+![Gameplay](https://osu.ppy.sh/ss/16304024/4527)
