@@ -16,7 +16,7 @@
 ![Gameplay](https://osu.ppy.sh/ss/16304144/0881)
 
 ## [Monko2k Colorful](https://drive.google.com/file/d/11bQ9zz60jYccShjgNGX_wXaBEbqJN-Dd/view?usp=sharing)
-![Gameplay](https://osu.ppy.sh/ss/16304152/24b1
+![Gameplay](https://osu.ppy.sh/ss/16304152/24b1)
 
 ## [Monko2k All Blue](https://drive.google.com/file/d/1sbZnZkI4WKBuO91jJN24fzH2JQBmXq5T/view?usp=sharing)
-![Gameplay](https://i.imgur.com/qTuPA9s.jpg
+![Gameplay](https://i.imgur.com/qTuPA9s.jpg)
